@@ -1,1 +1,0 @@
-# Aplikasi-pm-qr
